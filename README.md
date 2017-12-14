@@ -9,3 +9,5 @@ This domain is for sale!!
 This domain's original project was introduced at the korean daily news paper and the mainstream television.
 
 If you want to purchase this domain, please contract shnano1128@naver.com
+
+Min bid: 10000$, 한화 1천만원
